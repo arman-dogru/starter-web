@@ -7,9 +7,12 @@ My name is uvevuveuwueuw onyentuewwuewue lorem ipsum dolor sit amet
 What is up my man. How you doin HOMBRE. Nice Calves my brother.s
 
 ##??????
+????????????????
 
 ##Profit!
+Profit hell yeah nice job man good one
 
 ##Deployment
+this is a web project mate you good
 
 ##How to Contribute
