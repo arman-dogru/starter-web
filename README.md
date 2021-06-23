@@ -22,4 +22,8 @@ this is a web project mate you good
 
 ##COPYRIGHTS
 
+more copyrights
+
+and fork if you wanna contribute
+
 do not touch this man it is my work do not touch or steal you understand?????
