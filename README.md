@@ -27,3 +27,5 @@ this is a web project mate you good
 more copyrights
 
 and fork if you wanna contribute
+
+all rights reserved
